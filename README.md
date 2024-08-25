@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on [KQM guides translation](https://keqingmains.com/pt-br/)
 
-- ⚡ Fun fact **I know something or two about game development**
+- ⚡ Fun fact **I play the drums**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
